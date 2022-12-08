@@ -1,3 +1,3 @@
-# vikapinchukova
+# VikaPinchukova
 
 ## Contacts
